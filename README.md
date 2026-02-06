@@ -2,8 +2,6 @@
 
 ### 🎯 Em busca de Estágio em Análise de Dados 
 
-Estou em busca da minha primeira oportunidade como **Estagiário** para aplicar meus conhecimentos e aprender com o mercado, focando em transformar informações em decisões inteligentes.
-
 ---
 
 ### 📬 Vamos nos conectar?
