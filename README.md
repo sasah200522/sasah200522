@@ -12,4 +12,4 @@
 ---
 
 ### 📊 Meus Projetos de Estudo
-*Aqui abaixo estão os repositórios!*
+*Aqui abaixo estão os meus repositórios:*
